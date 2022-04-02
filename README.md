@@ -7,3 +7,5 @@
 # Contact
 ## **[vvv.gr8.com](https://vvv.gr8.com){:target="_blank"}**
 **Webdesign SEO Social Media**
+
+Copyright © 2022 vvv.gr8.com
